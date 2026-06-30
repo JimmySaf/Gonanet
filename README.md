@@ -1,2 +1,2 @@
 # Gonanet
-<! coming soon internet!>
+<! coming soon secured internet!>
